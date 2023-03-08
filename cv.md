@@ -39,6 +39,6 @@ Georgian(native speaker)
 
 English(b1+)
 
-Russian(lower than A1(tryin to start learning))
+
 
 
